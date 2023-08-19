@@ -1,7 +1,6 @@
 # Amir Shafat
 
 📧 Email: amir.shafat1@gmail.com  
-📞 Phone: 0504930586  
 
 ## Professional Summary
 
