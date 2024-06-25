@@ -4,7 +4,8 @@
 
 ## Professional Summary
 
-I am currently 22 years old and hold a position in the military, where I lead a team of 12 individuals, showcasing my leadership proficiency. Growing up with self-employed parents, I have imbibed a strong work ethic. With a lifelong involvement in sports, I excel in high-pressure situations and am skilled at problem-solving. My innate sociability allows me to connect well with others, valuing effective communication. Given my diverse background, I am well-prepared to make substantial contributions.
+I am currently 22 years old and looking for a new job,my last job was a full-stack team lead where I led a team of 12 individuals, showcasing my leadership proficiency. 
+Growing up with self-employed parents, I have imbibed a strong work ethic. With a lifelong involvement in sports, I excel in high-pressure situations and am skilled at problem-solving. My innate sociability allows me to connect well with others, valuing effective communication. Given my diverse background, I am well-prepared to make substantial contributions.
 
 ## Skills
 
